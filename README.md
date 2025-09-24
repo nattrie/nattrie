@@ -8,4 +8,4 @@
 
 ◜⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ☆⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀◞
 
-[new rentry](https://rentry.co/pr3tiesprincess)⠀ ⠀ ✦⠀ ⠀ [atabook](https://bobettcarolynne.atabook.org/)
+[new rentry](https://rentry.co/pr3tiesprincess)⠀ ⠀ ✦⠀ ⠀ [atabook](https://mequott.atabook.org/)
