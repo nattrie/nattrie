@@ -1,8 +1,8 @@
 <div align="center">
 
-<h6 align="center"> layout by kirakuurusu (tumblr) - art by flann_keii (twt) </h6> 
+<h6 align="center"> layout by dynellerouella (tumblr) </h6> 
 
-![image](https://64.media.tumblr.com/169b05ffd8f762a72a523ae0b14808ac/2943c7a9a603b1a1-87/s1280x1920/90b42d573b472bcffd89cde694d4607fd18ac9e7.pnj)
+![image](https://64.media.tumblr.com/66cc602973c73bdcb6133632c8c2ec6a/496953c3a3783dad-cb/s1280x1920/aece24c0328041c1290e9bde544c1298cae31a13.gifv)
 
 ⠀⠀⠀⠀❜⠀⠀⠀⠀ 🐚
 
