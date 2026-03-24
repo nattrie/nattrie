@@ -1,11 +1,11 @@
 <div align="center">
 
-<h6 align="center"> layout by dynellerouella (tumblr) </h6> 
+<h6 align="center"> layout by essthereal (tumblr) </h6> 
 
-![image](https://64.media.tumblr.com/06f8f9fd573388669c1a1543951b67de/496953c3a3783dad-c2/s2048x3072/e8bcd3e094d849ca3a5ca0cd5414758090e8234f.pnj)
+![image](https://64.media.tumblr.com/825516063546dabc11f4b65206eb398e/f9e18ea5698f45fd-be/s250x400/81cb0e096fe83d3563c24eaff29c641e3631ca50.gifv)
 
 ⠀⠀⠀⠀❜⠀⠀⠀⠀ 🐚
 
 ◜⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ☆⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀◞
 
-[new rentry](https://rentry.co/nattrie)⠀ ⠀ ✦⠀ ⠀ [atabook](https://mequott.atabook.org/)
+[rentry](https://rentry.co/nattrie)⠀ ⠀ ✦⠀ ⠀ [atabook](https://mequott.atabook.org/)
