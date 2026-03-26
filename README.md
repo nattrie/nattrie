@@ -8,4 +8,4 @@
 
 ◜⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ☆⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀ ⠀⠀◞
 
-[rentry](https://rentry.co/nattrie)⠀ ⠀ ✦⠀ ⠀ [atabook](https://mequott.atabook.org/)
+[rentry](https://rentry.co/nattrie)⠀ ⠀ ✦⠀ ⠀ [atabook](https://mequott.atabook.org/) ⠀ ⠀ ✦⠀ [i post art in here](https://www.pinterest.com/cupcakiescaketyy/)
