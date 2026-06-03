@@ -1,8 +1,8 @@
 <div align="center">
 
-<h6 align="center"> layout by essthereal (tumblr) </h6> 
+<h6 align="center"> layout by yumememis (tumblr) </h6> 
 
-![image](https://64.media.tumblr.com/825516063546dabc11f4b65206eb398e/f9e18ea5698f45fd-be/s250x400/81cb0e096fe83d3563c24eaff29c641e3631ca50.gifv)
+![image](https://64.media.tumblr.com/6f7bfa142d43a1f416e4a10a7fd3d2bb/19b64d2a70480934-1d/s2048x3072/cba8d8d500211ab88c06d291a015fbe5a23c91ab.gifv)
 
 ⠀⠀⠀⠀❜⠀⠀⠀⠀ 🐚
 
