@@ -41,18 +41,7 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
  $${\color{#5BAEEE}\textsf{DO NOT INTEREST}}$$ ![image](https://64.media.tumblr.com/ca01b4bde0808bf3584ef4cbb3dd0f76/b18aff3ce9323114-7c/s75x75_c1/6694e17317fece7cf72ad039c90895c4b5f73821.gifv)
 
-![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) basic dni criteria
-
-![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) proshippers , darkshippers
-
-![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) -13 (im so sorry T_T)
-
-![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) bein a weirdo and send me weird thingy....? you scares me okay...? sorry
-
-![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) if u hate yumeshippers ouch oopsie . . . ; - ;
-
-![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) if you supports unteralterbach and the coffin of andy and leyley
-(are you serious?)
+![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) [click 4 read my dni list!!! ](https://rentry.co/donotinterestin)
 
  $${\color{#5BAEEE}\textsf{byi}}$$ ![image](https://64.media.tumblr.com/9dab76bf1a80031db84d2aa51f4eef56/dac59b11406334cf-56/s75x75_c1/a4e5a68602964a58a7e5bf0c3a9ec92004717ccc.gifv)
 
