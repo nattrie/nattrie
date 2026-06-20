@@ -53,6 +53,8 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
   ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) i might act a little rude bcuz I sometimes lose control, but ill try my best to restrain myself,, i hope everyone can understand the inconvenience this may cause : ]
 
+  ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) **DON'T TRY** to cover me if youre not even my friend, ill block or hide you ,, im extremely uncomfortable with this.
+
  ![image](https://64.media.tumblr.com/392c046f487bb3b26f8a6f42eb80e73c/db7ce6708c01e3ab-9f/s1280x1920/11c78d84ce5e37241552488701de6cdee82357ad.pnj)
 
   oki thats all oh wait-! u actually read it all the way through! tysmm for readin!
