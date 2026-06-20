@@ -56,4 +56,16 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
  $${\color{#5BAEEE}\textsf{byi}}$$ ![image](https://64.media.tumblr.com/9dab76bf1a80031db84d2aa51f4eef56/dac59b11406334cf-56/s75x75_c1/a4e5a68602964a58a7e5bf0c3a9ec92004717ccc.gifv)
 
- $${\color{#b7f7f5}\textsf{soon , i give up TnT makin this its sooo long}}$$
+ $${\color{#b7f7f5}\textsf{haha! hi im comin back with this}}$$
+
+ ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) Lele, im usually not the one to initiate conversations w strangers simply because **I DON'T KNOW** what to say. im really sorry if I made you feel empty. I only really take the initiative when its my friends TvT
+
+  ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) c*h are always welcome!! i really like cuddles ,, So feel free to sit and cuddle with me : 3
+
+  ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) i might act a little rude bcuz I sometimes lose control, but ill try my best to restrain myself,, i hope everyone can understand the inconvenience this may cause : ]
+
+ ![image](https://64.media.tumblr.com/392c046f487bb3b26f8a6f42eb80e73c/db7ce6708c01e3ab-9f/s1280x1920/11c78d84ce5e37241552488701de6cdee82357ad.pnj)
+
+  oki thats all oh wait-! u actually read it all the way through! tysmm for readin!
+  
+  : D
