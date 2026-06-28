@@ -1,10 +1,11 @@
 <div align="center">
 
-![image](https://64.media.tumblr.com/7cf08ef3c135f1f684883e2052ea1dbe/155c9db6fb8260fc-f5/s250x400/f9a4097e99cb0dd9f1dac4c377f3534c062071c8.gifv)
+![image](https://64.media.tumblr.com/15ff24052a7077e9436d558e5d3eff66/6bdf89c7c92f1309-ff/s100x200/112b3200b116bca113f4e9e7e0c1a6448b05faf0.pnj) ⠀⠀⠀hishi akebono #1 fans in here rn!!!
 
-<h6 align="center"> $${\color{#5BAEEE}\textsf{lele hellou }}$$ </h6> 
 
-![image](https://64.media.tumblr.com/3dd6620b64c22d1db8235b355bc9ac17/5eb2d0ffabfb049a-26/s250x400/cbd4f06cf5df3215b27ce8f91ee5633d93116a3a.gifv)
+<h6 align="center"> $${\color{#5BAEEE}\textsf{lele hellou chattie}}$$ </h6> 
+
+![image](https://64.media.tumblr.com/bbeb7db1298f5bfb0077e491e37734a3/74dd85f719c826f8-73/s500x750/64fb34ed01ad4fea6a826079d8904bc78f30cd99.jpg)
 
 ![image](https://64.media.tumblr.com/4dd8244dee8f3a5708c6cb156317b766/db7ce6708c01e3ab-73/s75x75_c1/58e35ae3e46819280697c35bcfdb4885a407228e.gifv)
 
