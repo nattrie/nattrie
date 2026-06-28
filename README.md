@@ -19,23 +19,23 @@ $${\color{#5BAEEE}\textsf{sign my ata!!}}$$⠀ ⠀ ![image](https://64.media.tum
 $${\color{#5BAEEE}\textsf{ABOUT ME}}$$ ![image](https://64.media.tumblr.com/49cc63753c35c92cd7298e3d3d291992/d5b93803097ff972-01/s75x75_c1/980b419f401996cadaeb21a568d0542c52b1a933.gifv)
 
 
-![image](https://64.media.tumblr.com/18367bbec02d38fcbd7f61e89c27787c/2560c9d1d2d874bf-42/s75x75_c1/caaaeb4b73b1db948d84a329a95acf438f5e3a4c.gifv)
+![image](https://64.media.tumblr.com/28499e42d6d0c9481ab1d923ed7bdf73/c346731f71c7367c-34/s75x75_c1/6aba1ce0dbb589c24b2ee2740f5ceca0f04f4dc8.gifv)
  hai there!! my name is **nattrie**. u can call me **nat** for short! 20th Dec!! im 15 yo (will be 16 in dec!). im fine with any pronouns dw just call me anythin if u want!! i like makin pony, drawin, and animatin lele its been so fun:D:D
 
-![image](https://64.media.tumblr.com/18367bbec02d38fcbd7f61e89c27787c/2560c9d1d2d874bf-42/s75x75_c1/caaaeb4b73b1db948d84a329a95acf438f5e3a4c.gifv) im vietnamese . i use eng/viet for mains! i can change flexibly. 
+![image](https://64.media.tumblr.com/28499e42d6d0c9481ab1d923ed7bdf73/c346731f71c7367c-34/s75x75_c1/6aba1ce0dbb589c24b2ee2740f5ceca0f04f4dc8.gifv) im vietnamese . i use eng/viet for mains! i can change flexibly. 
 Although my English level isn't very good yet, thats okay; ill still try my best to learn as much as i can^_^
 
- ![image](https://64.media.tumblr.com/18367bbec02d38fcbd7f61e89c27787c/2560c9d1d2d874bf-42/s75x75_c1/caaaeb4b73b1db948d84a329a95acf438f5e3a4c.gifv) autistic . i might be a little quiet if we're not close, but dw^_^ . im very friendly, and i also enjoy seekin interaction. Although i may not say much at first, ill do my best! give me time to adapt it!!
+ ![image](https://64.media.tumblr.com/28499e42d6d0c9481ab1d923ed7bdf73/c346731f71c7367c-34/s75x75_c1/6aba1ce0dbb589c24b2ee2740f5ceca0f04f4dc8.gifv) autistic . i might be a little quiet if we're not close, but dw^_^ . im very friendly, and i also enjoy seekin interaction. Although i may not say much at first, ill do my best! give me time to adapt it!!
 
  $${\color{#5BAEEE}\textsf{MY INTEREST}}$$ ![image](https://64.media.tumblr.com/49cc63753c35c92cd7298e3d3d291992/d5b93803097ff972-01/s75x75_c1/980b419f401996cadaeb21a568d0542c52b1a933.gifv)
 
-  ![image](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv) multifandom!! but my main favourite is **umamusume** , **eddsworld** , block tales , max design pro and dandys world!! Interact with me if you share these fandoms with me, please! :D
+  ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) multifandom!! but my main favourite is **umamusume** , **eddsworld** , block tales , max design pro and dandys world!! Interact with me if you share these fandoms with me, please! :D
 
-![image](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv) im also is a yumeshipper shippers , always sharin pls pls yumeshipper interact pls!!  just dont be rude and u are always welcome!!
+![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) im also is a yumeshipper shippers , always sharin pls pls yumeshipper interact pls!!  just dont be rude and u are always welcome!!
 
- ![image](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv)  also is a multishippers too . . . i'd love to hear you share your favorite shippin preferences!
+ ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv)  also is a multishippers too . . . i'd love to hear you share your favorite shippin preferences!
 
-![image](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv) my favourite characters is **hishi akebono** , **edd** , **tom** , **poppy** , still in love , bobette , kyoko , angus and hope!!
+![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) my favourite characters is **hishi akebono** , **edd** , **tom** , **poppy** , still in love , bobette , kyoko , angus and hope!!
 
 ( Is this too much? hehe . . . i dont know ;-; )
 
@@ -43,23 +43,23 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
 ![image](https://64.media.tumblr.com/70aa499432b1d7e680982860cc3b0a99/db7ce6708c01e3ab-e1/s75x75_c1/188272f1a0f75cea0a74b10bdeb076e14d030c69.gifv) [click 4 read my dni list!!! ](https://rentry.co/donotinterestin)
 
- $${\color{#5BAEEE}\textsf{byi}}$$ ![image](https://64.media.tumblr.com/9dab76bf1a80031db84d2aa51f4eef56/dac59b11406334cf-56/s75x75_c1/a4e5a68602964a58a7e5bf0c3a9ec92004717ccc.gifv)
+ $${\color{#5BAEEE}\textsf{byi}}$$ ![image](https://64.media.tumblr.com/c18cdf396c8e36a6624eb8f602edce87/c346731f71c7367c-44/s75x75_c1/d454ce66941c9a37868b2feb3f5cd30d1457c56c.gifv)
 
  $${\color{#b7f7f5}\textsf{haha! hi im comin back with this}}$$
 
- ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) Lele, im usually not the one to initiate conversations w strangers simply because **I DON'T KNOW** what to say. im really sorry if I made you feel empty. I only really take the initiative when its my friends TvT
+ ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) Lele, im usually not the one to initiate conversations w strangers simply because **I DON'T KNOW** what to say. im really sorry if I made you feel empty. I only really take the initiative when its my friends TvT
 
-  ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) im not very good at understandin jokes, haha! im a bit borin, i hope everyone can understand :) thanks!
+  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) im not very good at understandin jokes, haha! im a bit borin, i hope everyone can understand :) thanks!
 
-  ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) c*h are always welcome!! i really like cuddles ,, So feel free to sit and cuddle with me : 3
+  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) c*h are always welcome!! i really like cuddles ,, So feel free to sit and cuddle with me : 3
 
-  ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) i might act a little rude bcuz I sometimes lose control, but ill try my best to restrain myself,, i hope everyone can understand the inconvenience this may cause : ]
+  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) i might act a little rude bcuz I sometimes lose control, but ill try my best to restrain myself,, i hope everyone can understand the inconvenience this may cause : ]
 
-  ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) **DON'T TRY** to cover me if youre not even my friend, ill block or hide you ,, im extremely uncomfortable with this.
+  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) **DON'T TRY** to cover me if youre not even my friend, ill block or hide you ,, im extremely uncomfortable with this.
 
- ![image](https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv) copy my skins = block , im ready to block you immediately, i dont care how you apologize ,, im serious
+ ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) copy my skins = block , im ready to block you immediately, i dont care how you apologize ,, im serious
 
- ![image](https://64.media.tumblr.com/392c046f487bb3b26f8a6f42eb80e73c/db7ce6708c01e3ab-9f/s1280x1920/11c78d84ce5e37241552488701de6cdee82357ad.pnj)
+ ![image](https://64.media.tumblr.com/61edf3f525edeb4f9676ad46f2ae9f09/a40e40792fefdc08-23/s540x810/42ba4895d989260d6321b08205d5a7be0d184b97.pnj)
 
   oki thats all oh wait-! u actually read it all the way through! tysmm for readin!
   
