@@ -1,9 +1,8 @@
 <div align="center">
 
-![image](https://64.media.tumblr.com/15ff24052a7077e9436d558e5d3eff66/6bdf89c7c92f1309-ff/s100x200/112b3200b116bca113f4e9e7e0c1a6448b05faf0.pnj) ⠀⠀⠀hishi akebono #1 fans in here rn!!!
+![image](https://64.media.tumblr.com/15ff24052a7077e9436d558e5d3eff66/6bdf89c7c92f1309-ff/s100x200/112b3200b116bca113f4e9e7e0c1a6448b05faf0.pnj)  ⠀⠀⠀![image](https://64.media.tumblr.com/928e57a2650dd088ae8d9e09150fb537/c346731f71c7367c-c3/s75x75_c1/7a00d071abbc58c7cace03118775aca007fb2c4f.gifv) ⠀⠀⠀ $${\color{#5BAEEE}\textsf{hishi akebono no.1 fans in here rn!!!}}$$ </h6> 
 
-
-<h6 align="center"> $${\color{#5BAEEE}\textsf{lele hellou chattie}}$$ </h6> 
+![image](https://64.media.tumblr.com/f0aead3ecba5fdfdb6924a5c2357ab97/5bde89fb1ffcd1fc-0e/s250x400/993bc12fa7905f53985dd774ac950a76debe6107.gifv)
 
 ![image](https://64.media.tumblr.com/bbeb7db1298f5bfb0077e491e37734a3/74dd85f719c826f8-73/s500x750/64fb34ed01ad4fea6a826079d8904bc78f30cd99.jpg)
 
@@ -11,7 +10,7 @@
 
 $${\color{#5BAEEE}\textsf{sign my ata!!}}$$⠀ ⠀ ![image](https://64.media.tumblr.com/58e50e5e4bc433fdfe4b22de7d028a33/db7ce6708c01e3ab-70/s75x75_c1/4021fc74fde2fec190a08697f82e2426f5d4be86.webp)⠀ ⠀ [atabook](https://nattrie.atabook.org/)
 
-![image](https://64.media.tumblr.com/e3e05575f71d7dea08d4c4f602e11d8a/1d94f68b6af5f37f-c7/s640x960/bc1e4ce05d0d6a4d294da75845eb302e22ec07a0.gifv)
+![image](https://64.media.tumblr.com/3556f47b588f7d7be2951782d4979bc8/a40e40792fefdc08-b3/s2048x3072/900406ea6a225f1cb5369f430b75de95570ebbe1.pnj)
 
 
 <details>
