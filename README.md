@@ -1,7 +1,5 @@
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176nerz7nxkagecb6ztkcy5oz5e&cover_image=true&theme=novatorem&show_offline=true&background_color=F0FBFF&interchange=true&profanity=true&bar_color=A851A0&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31dlxdhv2ygj5crz4qr6ikyni52e&redirect=true)
-
 ![image](https://64.media.tumblr.com/15ff24052a7077e9436d558e5d3eff66/6bdf89c7c92f1309-ff/s100x200/112b3200b116bca113f4e9e7e0c1a6448b05faf0.pnj)  ⠀⠀⠀![image](https://64.media.tumblr.com/928e57a2650dd088ae8d9e09150fb537/c346731f71c7367c-c3/s75x75_c1/7a00d071abbc58c7cace03118775aca007fb2c4f.gifv) ⠀⠀⠀ $${\color{#5BAEEE}\textsf{hishi akebono no.1 fans in here rn!!!}}$$ </h6> 
 
 ![image](https://64.media.tumblr.com/f0aead3ecba5fdfdb6924a5c2357ab97/5bde89fb1ffcd1fc-0e/s250x400/993bc12fa7905f53985dd774ac950a76debe6107.gifv)
@@ -14,6 +12,8 @@ $${\color{#5BAEEE}\textsf{sign my ata!!}}$$⠀ ⠀ ![image](https://64.media.tum
 
 ![image](https://64.media.tumblr.com/3556f47b588f7d7be2951782d4979bc8/a40e40792fefdc08-b3/s2048x3072/900406ea6a225f1cb5369f430b75de95570ebbe1.pnj)
 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31swni6knt4r5rizrnkx2okov4ti&cover_image=true&theme=default&show_offline=false&background_color=f0fbff&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=e64189)](https://spotify-github-profile.kittinanx.com/api/view?uid=31swni6knt4r5rizrnkx2okov4ti&redirect=true)
 
 <details>
 <summary><font color=><b> click 2 read it </b></font></summary>
