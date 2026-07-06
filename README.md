@@ -51,15 +51,19 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
  $${\color{#b7f7f5}\textsf{haha! hi im comin back with this}}$$
 
- ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) Lele, im usually not the one to initiate conversations w strangers simply because **I DON'T KNOW** what to say. im really sorry if I made you feel empty. TvT
+ ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) Lele, im usually not the one to initiate conversations w strangers simply because **I DON'T KNOW** what to say. im really sorry if I made you feel empty. I really want to start a conversation, but I cant seem to say anything. What could we possibly talk about? hmm I wonder TvT
 
   ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) im not very good at understandin jokes, haha! im a bit borin, i hope everyone can understand :) thanks!
 
   ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) c*h are always welcome!! i really like cuddles ,, So feel free to sit and cuddle with me : 3
 
-  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) i might act a little rude bcuz I sometimes lose control, but ill try my best to restrain myself,, i hope everyone can understand the inconvenience this may cause : ]
+  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) **I MUST EMPHASIZE THIS** my mood can be very unstable at times, and difficult to control it, and i might act a little rudely. im tryin to control it because it makes me feel bad about myself and also a little scared. i hope you can understand (although this rarely happens to me, i wanted to mention it beforehand so you can understand! : D).
 
-  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) **DON'T TRY** to cover me if youre not even my friend, ill block or hide you ,, im extremely uncomfortable with this.
+  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) **DON'T TRY** to cover me if youre not even my friend, ill block or hide you ,, im extremely uncomfortable with this. i dont know if you're doing this on purpose or not... but if you hide me long enough, ill definitely hide you completely!
+
+
+ ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) **DON'T TRY** to make offensive/sensitive jokes, even if i dont understand them. ill definitely block you permanently ,, you're scarin me, you know?
+ 
 
  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) copy my skins = block , im ready to block you immediately, i dont care how you apologize ,, im serious
 
