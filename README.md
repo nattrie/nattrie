@@ -32,6 +32,8 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
  ![image](https://64.media.tumblr.com/28499e42d6d0c9481ab1d923ed7bdf73/c346731f71c7367c-34/s75x75_c1/6aba1ce0dbb589c24b2ee2740f5ceca0f04f4dc8.gifv) autistic . i might be a little quiet if we're not close, but dw^_^ . im very friendly, and i also enjoy seekin interaction. Although i may not say much at first, ill do my best! give me time to adapt it!!
 
+ ![image](https://64.media.tumblr.com/28499e42d6d0c9481ab1d923ed7bdf73/c346731f71c7367c-34/s75x75_c1/6aba1ce0dbb589c24b2ee2740f5ceca0f04f4dc8.gifv) I like cutecore (im not cringe help), the style from the 2000s to 2019. I learn a lot from it, and I really like cute things, lele. (im not trying to be cute, lele, don't worry.) My artstyle got inspiration for drawin from some cartoons and got inspo by my favorite artist too! : D
+
  $${\color{#5BAEEE}\textsf{MY INTEREST}}$$ ![image](https://64.media.tumblr.com/49cc63753c35c92cd7298e3d3d291992/d5b93803097ff972-01/s75x75_c1/980b419f401996cadaeb21a568d0542c52b1a933.gifv)
 
   ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) multifandom!! but my main favourite is **umamusume** , **eddsworld** , block tales , max design pro and dandys world!! Interact with me if you share these fandoms with me, please! :D
