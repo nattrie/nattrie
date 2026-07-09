@@ -3,7 +3,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31swni6knt4r5rizrnkx2okov4ti&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-![image](https://64.media.tumblr.com/15ff24052a7077e9436d558e5d3eff66/6bdf89c7c92f1309-ff/s100x200/112b3200b116bca113f4e9e7e0c1a6448b05faf0.pnj)  ⠀⠀⠀![image](https://64.media.tumblr.com/928e57a2650dd088ae8d9e09150fb537/c346731f71c7367c-c3/s75x75_c1/7a00d071abbc58c7cace03118775aca007fb2c4f.gifv) ⠀⠀⠀ $${\color{#5BAEEE}\textsf{hishi akebono no.1 fans in here rn!!!}}$$ </h6> 
+![image](https://64.media.tumblr.com/15ff24052a7077e9436d558e5d3eff66/6bdf89c7c92f1309-ff/s100x200/112b3200b116bca113f4e9e7e0c1a6448b05faf0.pnj)  ⠀⠀⠀![image](https://64.media.tumblr.com/928e57a2650dd088ae8d9e09150fb537/c346731f71c7367c-c3/s75x75_c1/7a00d071abbc58c7cace03118775aca007fb2c4f.gifv) ⠀⠀⠀ $${\color{#5BAEEE}\textsf{hishi akebono fictionkin}}$$ </h6> 
 
 ![image](https://64.media.tumblr.com/f0aead3ecba5fdfdb6924a5c2357ab97/5bde89fb1ffcd1fc-0e/s250x400/993bc12fa7905f53985dd774ac950a76debe6107.gifv)
 
@@ -36,13 +36,13 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
  $${\color{#5BAEEE}\textsf{MY INTEREST}}$$ ![image](https://64.media.tumblr.com/49cc63753c35c92cd7298e3d3d291992/d5b93803097ff972-01/s75x75_c1/980b419f401996cadaeb21a568d0542c52b1a933.gifv)
 
-  ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) multifandom!! but my main favourite is **umamusume** , **eddsworld** , block tales , max design pro and dandys world!! Interact with me if you share these fandoms with me, please! :D
+  ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) multifandom!! but my main favourite is **umamusume** , **eddsworld** , **animal hospital** , block tales , max design pro and dandys world!! Interact with me if you share these fandoms with me, please! :D
 
 ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) im also is a yumeshipper shippers , always sharin pls pls yumeshipper interact pls!!  just dont be rude and u are always welcome!!
 
  ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv)  also is a multishippers too . . . i'd love to hear you share your favorite shippin preferences!
 
-![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) my favourite characters is **hishi akebono** , **edd** , **tom** , **poppy** , still in love , bobette , kyoko , angus and hope!!
+![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) my favourite characters is **hishi akebono** , **edd** , **tom** , **poppy** , **nurse** , still in love , bobette , kyoko , angus and hope!!
 
 ( Is this too much? hehe . . . i dont know ;-; )
 
