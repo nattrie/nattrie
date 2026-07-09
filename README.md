@@ -15,6 +15,7 @@ $${\color{#5BAEEE}\textsf{sign my ata!!}}$$⠀ ⠀ ![image](https://64.media.tum
 
 ![image](https://64.media.tumblr.com/3556f47b588f7d7be2951782d4979bc8/a40e40792fefdc08-b3/s2048x3072/900406ea6a225f1cb5369f430b75de95570ebbe1.pnj)
 
+[fav ppls list](https://rentry.co/sharinicecreamswsome1ilovs) yay!! ily'guys
 
 
 <details>
