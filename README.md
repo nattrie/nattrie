@@ -42,7 +42,7 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
  ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv)  also is a multishippers too . . . i'd love to hear you share your favorite shippin preferences!
 
-![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) my favourite characters is **hishi akebono** , **edd** , **tom** , **poppy** , **nurse** , still in love , bobette , kyoko , angus and hope!!
+![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) my favourite characters is **hishi akebono** , **edd** , **tom** , **poppy** , **nurse** , **ratthew** , still in love , bobette , kyoko , angus and hope!!
 
 ( Is this too much? hehe . . . i dont know ;-; )
 
@@ -73,6 +73,10 @@ Although my English level isn't very good yet, thats okay; ill still try my best
  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) copy my skins = block , im ready to block you immediately, i dont care how you apologize ,, im serious
 
  ![image](https://64.media.tumblr.com/61edf3f525edeb4f9676ad46f2ae9f09/a40e40792fefdc08-23/s540x810/42ba4895d989260d6321b08205d5a7be0d184b97.pnj)
+
+ ![image](https://64.media.tumblr.com/0ad2a9370dc9a21399f300a24effe2d8/ea940e5c2965d08d-e8/s250x400/fb5eaf3fbd3ff5c30cc76f57893d855dc22b0cd6.pnj)  ![image](https://64.media.tumblr.com/dd22fec79d936dac86a901c08c9c2fcc/ea940e5c2965d08d-44/s250x400/e4a4d5afa9e70b6baaf2e5831f0a44e7e7bbb3bc.pnj)  
+ $${\color{#A7AFBD}\textsf{hey ratthew, what r u doin here??}}$$
+
 
   oki thats all oh wait-! u actually read it all the way through! tysmm for readin!
   
