@@ -36,7 +36,7 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
  $${\color{#5BAEEE}\textsf{MY INTEREST}}$$ ![image](https://64.media.tumblr.com/49cc63753c35c92cd7298e3d3d291992/d5b93803097ff972-01/s75x75_c1/980b419f401996cadaeb21a568d0542c52b1a933.gifv)
 
-  ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) multifandom!! but my main favourite is **umamusume** , **eddsworld** , **animal hospital** , block tales , max design pro and dandys world!! Interact with me if you share these fandoms with me, please! :D
+  ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) multifandom!! but my main favourite is **umamusume** , **eddsworld** , **animal hospital** , block tales , and ... max design pro!! Interact with me if you share these fandoms with me, please! :D
 
 ![image](https://64.media.tumblr.com/02d63d22f7a1dd88c291bddc97a48f3d/eff4b63e30bc6480-83/s75x75_c1/4c11f1eef13c6e7dd613e8af6069edc4b1234137.gifv) im also is a yumeshipper shippers , always sharin pls pls yumeshipper interact pls!!  just dont be rude and u are always welcome!!
 
