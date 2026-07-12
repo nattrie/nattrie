@@ -11,7 +11,8 @@
 
 ![image](https://64.media.tumblr.com/4dd8244dee8f3a5708c6cb156317b766/db7ce6708c01e3ab-73/s75x75_c1/58e35ae3e46819280697c35bcfdb4885a407228e.gifv)
 
-$${\color{#5BAEEE}\textsf{sign my ata!!}}$$⠀ ⠀ ![image](https://64.media.tumblr.com/58e50e5e4bc433fdfe4b22de7d028a33/db7ce6708c01e3ab-70/s75x75_c1/4021fc74fde2fec190a08697f82e2426f5d4be86.webp)⠀ ⠀ [atabook](https://nattrie.atabook.org/)
+[ata for qna](https://2ndnattries.atabook.org/)
+⠀ ⠀ ![image](https://64.media.tumblr.com/58e50e5e4bc433fdfe4b22de7d028a33/db7ce6708c01e3ab-70/s75x75_c1/4021fc74fde2fec190a08697f82e2426f5d4be86.webp)⠀ ⠀ [my main atabook](https://nattrie.atabook.org/)
 
 ![image](https://64.media.tumblr.com/3556f47b588f7d7be2951782d4979bc8/a40e40792fefdc08-b3/s2048x3072/900406ea6a225f1cb5369f430b75de95570ebbe1.pnj)
 
