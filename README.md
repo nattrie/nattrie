@@ -1,6 +1,6 @@
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31swni6knt4r5rizrnkx2okov4ti&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31swni6knt4r5rizrnkx2okov4ti&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=9dc5d2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 ![image](https://64.media.tumblr.com/15ff24052a7077e9436d558e5d3eff66/6bdf89c7c92f1309-ff/s100x200/112b3200b116bca113f4e9e7e0c1a6448b05faf0.pnj)  ⠀⠀⠀![image](https://64.media.tumblr.com/928e57a2650dd088ae8d9e09150fb537/c346731f71c7367c-c3/s75x75_c1/7a00d071abbc58c7cace03118775aca007fb2c4f.gifv) ⠀⠀⠀ $${\color{#5BAEEE}\textsf{hishi akebono fictionkin}}$$ </h6> 
