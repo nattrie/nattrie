@@ -57,6 +57,8 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
   ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) I enjoy makin pony skins but often dont know what to make. U can request me to make a pony skins that suits your theme if you'd like : 3 dont be shy awww /pos
 
+ ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) i am a **spammer** ,, i often spam meaningless things (i likes spamming funny thingy) and i think its very funny. i only spam when my friends arent bothered by it. If you are bothered? pls tell me! I will stop it if it makes you uncomfortable. ) : D
+
  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) Lele, im usually not the one to initiate conversations w strangers simply because **I DON'T KNOW** what to say. im really sorry if I made you feel empty. I really want to start a conversation, but I cant seem to say anything. What could we possibly talk about? hmm I wonder TvT
 
   ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) im not very good at understandin jokes, haha! im a bit borin, i hope everyone can understand :) thanks!
