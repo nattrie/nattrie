@@ -1,5 +1,6 @@
 <div align="center">
 
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31swni6knt4r5rizrnkx2okov4ti&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=9dc5d2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
@@ -83,4 +84,4 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
   oki thats all oh wait-! u actually read it all the way through! tysmm for readin!
   
-  : D
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=nattrie)
