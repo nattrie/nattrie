@@ -72,6 +72,8 @@ Although my English level isn't very good yet, thats okay; ill still try my best
 
 
  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) **DON'T TRY** to make offensive/sensitive jokes, even if i dont understand them. ill definitely block you permanently ,, you're scarin me, you know?
+
+ ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) Annddd **DON'T TRY** to joke around when we dont even know each other; I get annoyed (im a bit grumpy, though normally im very friendly) about it. I could absolutely block you if it bothers me enough. Hopefully you can refrain from doing that. ^ _ ^
  
 
  ![image](https://64.media.tumblr.com/2fb0ea2c657e6dfa7bad9382d619e357/eff4b63e30bc6480-77/s75x75_c1/c826ada97cac6a227248ce2b27cc297be052c580.gifv) copy my skins = block , im ready to block you immediately, i dont care how you apologize ,, im serious
