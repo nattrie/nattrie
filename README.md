@@ -15,4 +15,6 @@ $${\color{#DA4F9A}\textsf{i'm a minor (16 years old)}}$$
 
 $${\color{#DA4F9A}\textsf{any pronouns is okay but i prefer she!}}$$
 
+$${\color{#DA4F9A}\textsf{I don't accept random friend requests.}}$$
+
 ![image](https://64.media.tumblr.com/268471f43fc2d4b3dcb7b40dd258b19a/1d7dff280dffe7e9-aa/s75x75_c1/3cd0b665db72a7483f448f958cbdfdf82cd31ce7.gifv) ⠀⠀⠀  $${\color{#DA4F9A}\textsf{hishi akebono fictionkin}}$$
