@@ -34,6 +34,12 @@ $${\color{#DA4F9A}\textsf{i'm a minor (6teen!!)}}$$
 ${{\color{#93A3FA}\texttt{im a mulitshippers and a sharing yumeshipper}}}$<br>
 
 <p align="center">
+${{\color{#93A3FA}\texttt{(doubles are okay! : D)}}}$<br>
+
+<p align="center">
+${{\color{#93A3FA}\texttt{yms with Curren Chan!!! shes so cutie}}}$<br>
+
+<p align="center">
 ${{\color{#93A3FA}\texttt{c*h are always welcome!! im very fw with it!}}}$<br>
 
 <p align="center">
