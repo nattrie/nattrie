@@ -7,7 +7,9 @@
 
 ![image](https://64.media.tumblr.com/10b87bd2629f2df83c4e70e73c600fda/ca8baaa8d0abd3a5-90/s400x600/929455838739e0e9e556ea380b7ccd2226bb68b2.pnj)
 
-$${\color{#DA4F9A}\textsf{haii . call me nattrie/nat for short!}}$$
+$${\color{#EAAFAC}\textsf{" Call, I'm desperate for your voice "}}$$
+
+$${\color{#DA4F9A}\textsf{haii there . call me nattrie/nat for short!}}$$
 
 ![image](https://64.media.tumblr.com/ad6a3dd731e8460fdb245a03079b8672/19136507c3e35d84-2b/s75x75_c1/ee4ffbed61941ace80129ddfaa8edc7264c3fa47.pnj) ㅤ![image](https://64.media.tumblr.com/93f09a668e139585308722a0ea9b0e04/69ea6641a821874c-31/s75x75_c1/b2e00a5553b2b538178cb0ccd862fdc5f225afeb.pnj)
 
