@@ -11,7 +11,10 @@ $${\color{#EAAFAC}\textsf{" Call, I'm desperate for your voice "}}$$
 
 $${\color{#DA4F9A}\textsf{haii there . call me nattrie/nat for short!}}$$
 
+
 ![image](https://64.media.tumblr.com/ad6a3dd731e8460fdb245a03079b8672/19136507c3e35d84-2b/s75x75_c1/ee4ffbed61941ace80129ddfaa8edc7264c3fa47.pnj) ㅤ![image](https://64.media.tumblr.com/93f09a668e139585308722a0ea9b0e04/69ea6641a821874c-31/s75x75_c1/b2e00a5553b2b538178cb0ccd862fdc5f225afeb.pnj)
+
+$${\color{#DA4F9A}\textsf{eng/viet . but vietnamese for main}}$$
 
 $${\color{#DA4F9A}\textsf{i'm a minor (6teen!!)}}$$
 
