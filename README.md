@@ -56,6 +56,18 @@ ${{\color{#93A3FA}\texttt{I don't accept random friend requests. Thank u!}}}$<br
 <p align="center">  
 <h3 align="center"><img align="center" src="https://64.media.tumblr.com/18367bbec02d38fcbd7f61e89c27787c/2560c9d1d2d874bf-42/s75x75_c1/caaaeb4b73b1db948d84a329a95acf438f5e3a4c.gifv" height="100px" alt="lyrics"/><br>
 
+
+<p align="center">
+${{\color{#93A3FA}\texttt{ehh I enjoy talking..... eh but I'm}}}$<br>
+
+<p align="center">
+${{\color{#93A3FA}\texttt{usually not the one to initiate it first}}}$<br>
+
+<p align="center">
+${{\color{#93A3FA}\texttt{idk what to talk first so yeah...! U go first}}}$<br>
+
+.
+
 <p align="center">
 ${{\color{#93A3FA}\texttt{i dont have iwc/iwec. feel free to talk if u}}}$<br>
 
@@ -64,6 +76,7 @@ ${{\color{#93A3FA}\texttt{really want to makes friend w me! >w<}}}$<br>
 
 <p align="center">
 ${{\color{#93A3FA}\texttt{(But remember to avoid mentioning}}}$<br>
+
 
 <p align="center">
 ${{\color{#93A3FA}\texttt{inappropriate topics!)}}}$<br>
