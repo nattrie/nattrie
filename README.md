@@ -5,7 +5,7 @@
 
 ![image](https://64.media.tumblr.com/69224c932727a09c05a55efd9d63da64/1d7dff280dffe7e9-1b/s75x75_c1/22c8c3b4c1b2e7b5968ed4211fc2743b23245ec7.gifv) ㅤ[dni](https://rentry.co/donotinterestin)  ㅤ[byi](https://rentry.co/b4uinteresting) ㅤ[ata](https://nattrie.atabook.org/) ㅤ[media](https://rentry.co/misocialmediia)
 
-<img src="https://64.media.tumblr.com/89507bd251b5f71f771f7f574d71b1b2/1570b37c75fc7837-5c/s640x960/e901b70e3b7e0b9cb9220f5420adb6dbdc207c95.gifv" width="300">
+<img src="https://64.media.tumblr.com/89507bd251b5f71f771f7f574d71b1b2/1570b37c75fc7837-5c/s640x960/e901b70e3b7e0b9cb9220f5420adb6dbdc207c95.gifv" width="250">
 
 
 $${\color{#EAAFAC}\textsf{" Call, I'm desperate for your voice "}}$$
