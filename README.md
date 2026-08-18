@@ -8,9 +8,6 @@
 <img src="https://64.media.tumblr.com/89507bd251b5f71f771f7f574d71b1b2/1570b37c75fc7837-5c/s640x960/e901b70e3b7e0b9cb9220f5420adb6dbdc207c95.gifv" width="250">
 
 
-![image](https://64.media.tumblr.com/023eafb660eed86648c8b6cf8993915f/d5b93803097ff972-f1/s400x600/47361b227940cdfdeecec55e56e710d9117dc44f.jpg)
-
-
 $${\color{#EAAFAC}\textsf{" Call, I'm desperate for your voice "}}$$
 
 $${\color{#DA4F9A}\textsf{haii there . call me nattrie/nat for short!}}$$
