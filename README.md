@@ -7,7 +7,7 @@
 
 $${\color{#DA4F9A}\textsf{PLEASE read my "byi" b4 int, sorry for the interruption!}}$$
 
-<img src="https://64.media.tumblr.com/89507bd251b5f71f771f7f574d71b1b2/1570b37c75fc7837-5c/s640x960/e901b70e3b7e0b9cb9220f5420adb6dbdc207c95.gifv" width="250">
+<img src="https://64.media.tumblr.com/50ca10b45f259a5363f4607e6f47d96d/84fefab00247298e-a2/s640x960/38449dbb8224e98aaf605f8097134df3ee6615bf.webp" width="250">
 
 
 $${\color{#EAAFAC}\textsf{" I believe in good things "}}$$
@@ -18,8 +18,6 @@ $${\color{#DA4F9A}\textsf{haii there . call me nattrie/nat for short!}}$$
 ![image](https://64.media.tumblr.com/ad6a3dd731e8460fdb245a03079b8672/19136507c3e35d84-2b/s75x75_c1/ee4ffbed61941ace80129ddfaa8edc7264c3fa47.pnj) ㅤ![image](https://64.media.tumblr.com/93f09a668e139585308722a0ea9b0e04/69ea6641a821874c-31/s75x75_c1/b2e00a5553b2b538178cb0ccd862fdc5f225afeb.pnj)
 
 $${\color{#DA4F9A}\textsf{eng/viet . but vietnamese for main}}$$
-
-$${\color{#DA4F9A}\textsf{i'm a minor (6teen!!)}}$$
 
 
 ![image](https://64.media.tumblr.com/268471f43fc2d4b3dcb7b40dd258b19a/1d7dff280dffe7e9-aa/s75x75_c1/3cd0b665db72a7483f448f958cbdfdf82cd31ce7.gifv) ⠀⠀⠀  $${\color{#DA4F9A}\textsf{hishi akebono fictionkin}}$$
