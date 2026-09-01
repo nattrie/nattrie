@@ -65,7 +65,7 @@ ${{\color{#93A3FA}\texttt{usually not the one to initiate it first}}}$<br>
 <p align="center">
 ${{\color{#93A3FA}\texttt{idk what to talk first so yeah...! U go first}}}$<br>
 
-.
+<h3 align="center"><img align="center" src="https://64.media.tumblr.com/751150016e37823d08be4e8b2807457e/67959a47f25a3a03-24/s75x75_c1/15dc4ca0a9502546840b0f23d4ab089492690aba.gifv" height="100px" alt="lyrics"/><br>
 
 <p align="center">
 ${{\color{#93A3FA}\texttt{i dont have iwc/iwec. feel free to talk if u}}}$<br>
