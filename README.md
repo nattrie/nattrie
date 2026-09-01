@@ -10,7 +10,7 @@ $${\color{#DA4F9A}\textsf{PLEASE read my "byi" b4 int, sorry for the interruptio
 <img src="https://64.media.tumblr.com/89507bd251b5f71f771f7f574d71b1b2/1570b37c75fc7837-5c/s640x960/e901b70e3b7e0b9cb9220f5420adb6dbdc207c95.gifv" width="250">
 
 
-$${\color{#EAAFAC}\textsf{" Call, I'm desperate for your voice "}}$$
+$${\color{#EAAFAC}\textsf{" I believe in good things "}}$$
 
 $${\color{#DA4F9A}\textsf{haii there . call me nattrie/nat for short!}}$$
 
