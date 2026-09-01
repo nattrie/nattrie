@@ -26,52 +26,22 @@ $${\color{#EAAFAC}\textsf{" I believe in good things "}}$$
 <td>
   
 <details>
-<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀click it (☆ω☆)⠀ㅤ</summary>
+<summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀(☆ω☆)⠀ㅤ</summary>
 
 <p align="center">  
-<h3 align="center"><img align="center" src="https://64.media.tumblr.com/acf3f21e78b710bf26de3d1011fd1a91/3759ddfb5b151c74-1f/s75x75_c1/3ca7acd35bb109613bd083964faf9831ac207020.gifv" height="100px" alt="lyrics"/><br>
+<h3 align="center"><img align="center" src="https://64.media.tumblr.com/148f7e3f62740996dad5b1362b2be362/e568902e968410f9-02/s250x400/af3a349cee44b6aac3476ecf14cff9b334e1602c.gifv" height="100px" alt="lyrics"/><br>
 
 <div style="color:#FFDBD1; font-size:10px; line-height:1.5; text-align:left; margin-top:10px;">
 
 <p align="center">
-  ${{\color{#FFDBD1}\texttt{}}}$<br>
-${{\color{#93A3FA}\texttt{im a mulitshippers and a sharing yumeshipper}}}$<br>
+${{\color{#93A3FA}\texttt{ㅤ}}}$<br>
 
-<p align="center">
-${{\color{#93A3FA}\texttt{(doubles are okay! : D)}}}$<br>
-
-<p align="center">
-${{\color{#93A3FA}\texttt{yms with Curren Chan!!! shes so cutie}}}$<br>
-
-<p align="center">
-${{\color{#93A3FA}\texttt{c*h are always welcome!! im very fw with it!}}}$<br>
-
-<p align="center">
-${{\color{#93A3FA}\texttt{AzureTime get out of my sight! (dni) }}}$<br>
-
-<p align="center">
-${{\color{#93A3FA}\texttt{I don't accept random friend requests. Thank u!}}}$<br>
-
-<p align="center">  
-<h3 align="center"><img align="center" src="https://64.media.tumblr.com/18367bbec02d38fcbd7f61e89c27787c/2560c9d1d2d874bf-42/s75x75_c1/caaaeb4b73b1db948d84a329a95acf438f5e3a4c.gifv" height="100px" alt="lyrics"/><br>
-
-
-<p align="center">
-${{\color{#93A3FA}\texttt{ehh I enjoy talking..... eh but I'm}}}$<br>
-
-<p align="center">
-${{\color{#93A3FA}\texttt{usually not the one to initiate it first}}}$<br>
-
-<p align="center">
-${{\color{#93A3FA}\texttt{idk what to talk first so yeah...! U go first}}}$<br>
-
-<h3 align="center"><img align="center" src="https://64.media.tumblr.com/751150016e37823d08be4e8b2807457e/67959a47f25a3a03-24/s75x75_c1/15dc4ca0a9502546840b0f23d4ab089492690aba.gifv" height="100px" alt="lyrics"/><br>
 
 <p align="center">
 ${{\color{#93A3FA}\texttt{i dont have iwc/iwec. feel free to talk if u}}}$<br>
 
 <p align="center">
-${{\color{#93A3FA}\texttt{really want to makes friend w me! >w<}}}$<br>
+${{\color{#93A3FA}\texttt{really want to makes friend w me!}}}$<br>
 
 <p align="center">
 ${{\color{#93A3FA}\texttt{(But remember to avoid mentioning}}}$<br>
