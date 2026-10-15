@@ -11,7 +11,6 @@
 <img src="https://64.media.tumblr.com/50ca10b45f259a5363f4607e6f47d96d/84fefab00247298e-a2/s640x960/38449dbb8224e98aaf605f8097134df3ee6615bf.webp" width="200">
 
 
-$${\color{#EAAFAC}\textsf{" I believe in good things "}}$$
 
 ![image](https://64.media.tumblr.com/b9661d312cfad2c3abbf56393312496e/67959a47f25a3a03-22/s75x75_c1/239a51809c8acbd9559047906ea947966aad1635.gifv)ㅤㅤ  $${\color{#DA4F9A}\textsf{nattrie / lacie / akebono}}$$
 
