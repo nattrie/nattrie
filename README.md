@@ -12,3 +12,5 @@
 call me **nattrie** / lacie or akebono
 
 autistic | any pronouns <img src="https://64.media.tumblr.com/ad6a3dd731e8460fdb245a03079b8672/19136507c3e35d84-2b/s75x75_c1/ee4ffbed61941ace80129ddfaa8edc7264c3fa47.pnj" width="20">
+
+not active much on pt cuz lazy
