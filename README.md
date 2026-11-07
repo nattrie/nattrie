@@ -9,7 +9,8 @@
 
 <img src="https://64.media.tumblr.com/714637318ec4f667de072436185fb6d9/c8c1bb32e7444b0d-a8/s250x400/20eebc0a85f16eed76c537cffdd0690341af1bf5.pnj" width="150">
 
- call me **nattrie** / lacie or akebono
+$${\color{#DA4F9A}\textsf{call me **nattrie** / lacie or akebono}}$$
+ 
 
 autistic | any pronouns <img src="https://64.media.tumblr.com/ad6a3dd731e8460fdb245a03079b8672/19136507c3e35d84-2b/s75x75_c1/ee4ffbed61941ace80129ddfaa8edc7264c3fa47.pnj" width="20">
 
