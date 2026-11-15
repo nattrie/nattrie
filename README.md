@@ -4,15 +4,12 @@
 
 
 
-![image](https://64.media.tumblr.com/69224c932727a09c05a55efd9d63da64/1d7dff280dffe7e9-1b/s75x75_c1/22c8c3b4c1b2e7b5968ed4211fc2743b23245ec7.gifv)  ㅤ[dni](https://rentry.co/donotinterestin)  ㅤ[byi](https://rentry.co/b4uinteresting) ㅤ[ata](https://nattrie.atabook.org/) ㅤ [media](https://rentry.co/misocialmediia) ㅤ[straw](https://nattrie.straw.page/) ㅤ[zyo.lol](https://zyo.lol/nattrie)
+![image](https://64.media.tumblr.com/69224c932727a09c05a55efd9d63da64/1d7dff280dffe7e9-1b/s75x75_c1/22c8c3b4c1b2e7b5968ed4211fc2743b23245ec7.gifv)  ㅤ[dni](https://rentry.co/donotinterestin)  ㅤ[byi](https://rentry.co/b4uinteresting) ㅤ[ata](https://nattrie.atabook.org/) ㅤ[straw](https://nattrie.straw.page/) ㅤ[zyo.lol](https://zyo.lol/nattrie)
 
 
 
-<img src="https://64.media.tumblr.com/714637318ec4f667de072436185fb6d9/c8c1bb32e7444b0d-a8/s250x400/20eebc0a85f16eed76c537cffdd0690341af1bf5.pnj" width="150">
+<img src="https://i.pinimg.com/736x/cb/56/bb/cb56bb7411a23a1ba0afd422e2265a07.jpg" width="400">
 
-$${\color{#DA4F9A}\textsf{call me **nattrie** / lacie or akebono}}$$
+ ㅤ
  
-
-<img src="https://64.media.tumblr.com/ad6a3dd731e8460fdb245a03079b8672/19136507c3e35d84-2b/s75x75_c1/ee4ffbed61941ace80129ddfaa8edc7264c3fa47.pnj" width="20"> ⠀⠀⠀  $${\color{#DA4F9A}\textsf{autistic | any pronouns}}$$   
-
-$${\color{#DA4F9A}\textsf{not active much on pt cuz lazy}}$$
+![image](https://64.media.tumblr.com/5b8604038431dda290959ce39c56ccb6/e826a58e00f524c6-69/s75x75_c1/2ebbbcbfe448177a62f33b9fef4618c4a099a979.gifv) ㅤㅤ$${\color{#DA4F9A}\textsf{not active much on pt cuz lazy}}$$
