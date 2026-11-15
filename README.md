@@ -6,6 +6,8 @@
 
 ![image](https://64.media.tumblr.com/69224c932727a09c05a55efd9d63da64/1d7dff280dffe7e9-1b/s75x75_c1/22c8c3b4c1b2e7b5968ed4211fc2743b23245ec7.gifv)  ㅤ[dni](https://rentry.co/donotinterestin)  ㅤ[byi](https://rentry.co/b4uinteresting) ㅤ[ata](https://nattrie.atabook.org/) ㅤ[straw](https://nattrie.straw.page/) ㅤ[zyo.lol](https://zyo.lol/nattrie)
 
+ ㅤ
+ <img src="https://64.media.tumblr.com/b0a238e5f273870b1650c32a8b8000f7/2e4b45c7513b3f80-a9/s400x600/8651d4817955f35ab2697324e4c1fbea3a7b9b26.pnj" width="400">
 
 
 <img src="https://i.pinimg.com/736x/cb/56/bb/cb56bb7411a23a1ba0afd422e2265a07.jpg" width="400">
