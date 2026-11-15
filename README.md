@@ -12,4 +12,4 @@
 
  ㅤ
  
-![image](https://64.media.tumblr.com/5b8604038431dda290959ce39c56ccb6/e826a58e00f524c6-69/s75x75_c1/2ebbbcbfe448177a62f33b9fef4618c4a099a979.gifv) ㅤㅤ$${\color{#DA4F9A}\textsf{not active much on pt cuz lazy}}$$
+![image](https://64.media.tumblr.com/5b8604038431dda290959ce39c56ccb6/e826a58e00f524c6-69/s75x75_c1/2ebbbcbfe448177a62f33b9fef4618c4a099a979.gifv)ㅤㅤ$${\color{#DA4F9A}\textsf{not active much on pt cuz lazy}}$$
