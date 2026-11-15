@@ -10,9 +10,9 @@
  <img src="https://64.media.tumblr.com/b0a238e5f273870b1650c32a8b8000f7/2e4b45c7513b3f80-a9/s400x600/8651d4817955f35ab2697324e4c1fbea3a7b9b26.pnj" width="400">
 
 
-<img src="https://i.pinimg.com/736x/cb/56/bb/cb56bb7411a23a1ba0afd422e2265a07.jpg" width="400">
+<img src="https://i.pinimg.com/736x/2a/f1/06/2af106b5a2815127df51b51241dffcfd.jpg" width="450">
 
  ㅤ
  
 ![image](https://64.media.tumblr.com/5b8604038431dda290959ce39c56ccb6/e826a58e00f524c6-69/s75x75_c1/2ebbbcbfe448177a62f33b9fef4618c4a099a979.gifv)ㅤㅤ
-$${\color{#DA4F9A}\textsf{not active much on pt cuz lazy}}$$
+$${\color{#ffe2ee}\textsf{nattrie . she/any}}$$
