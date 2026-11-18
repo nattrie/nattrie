@@ -20,7 +20,6 @@ $${\color{#ffd6e6}\textsf{nattrie / akebono  .ㅤ any prns ㅤ,, not active much
 <details>
 <summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀☆⠀ㅤ</summary>
 
-div style="color:#FFDBD1; font-size:10px; line-height:1.5; text-align:left; margin-top:10px;">
 
 <p align="center">
 ${{\color{#93A3FA}\texttt{I've lost interest in communicating.}}}$<br>
