@@ -17,6 +17,10 @@
 ![image](https://64.media.tumblr.com/5b8604038431dda290959ce39c56ccb6/e826a58e00f524c6-69/s75x75_c1/2ebbbcbfe448177a62f33b9fef4618c4a099a979.gifv)ㅤㅤ
 $${\color{#ffd6e6}\textsf{nattrie / akebono  .ㅤ any prns ㅤ,, not active much on pt}}$$
 
+<table width="450" border="1" cellpadding="10" cellspacing="0" align="center">
+<tr>
+<td>
+
 <details>
 <summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀☆⠀ㅤ</summary>
 
