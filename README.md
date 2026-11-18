@@ -29,4 +29,10 @@ $${\color{#ffd6e6}\textsf{nattrie / akebono  .ㅤ any prns ㅤ,, not active much
 ${{\color{#93A3FA}\texttt{I've lost interest in communicating.}}}$<br>
 
 <p align="center">
-${{\color{#93A3FA}\texttt{(Therefore, I may not respond.)}}}$<br>
+${{\color{#93A3FA}\texttt{Therefore, I may not respond.}}}$<br>
+
+<p align="center">
+${{\color{#93A3FA}\texttt{Afk usually cuz busy}}}$<br>
+
+<p align="center">
+${{\color{#93A3FA}\texttt{If u want to talk w me , pls whisper!}}}$<br>
